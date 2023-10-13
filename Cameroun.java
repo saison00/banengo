@@ -9,3 +9,5 @@ Batoufam
 Bagangte
 batchienga
 
+I am rich
+In JESUS NAME I WILL SURVIVE
